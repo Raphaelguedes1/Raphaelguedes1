@@ -9,4 +9,4 @@ Outside of tech, I enjoy gaming, exploring new places and cities, traveling, wat
 
 Connect with me on [LinkedIn](https://www.linkedin.com/in/raphael-guedes-6a1365193/).
 
-*Tagline: Dedicated SAP Consultant passionate about innovative solutions for the Utilities sector.*
+*Dedicated SAP Consultant passionate about innovative solutions for the Utilities sector.*
